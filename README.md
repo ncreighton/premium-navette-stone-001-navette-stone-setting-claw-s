@@ -1,0 +1,2 @@
+# premium-navette-stone-001-navette-stone-setting-claw-s
+Tired of uneven claws and misaligned navette stones ruining your custom jewelry pieces? Stop guessing the exact angle for setting elongated gems and start creating symmetrical, professional-grade settings every time with a structured Notion workflow.  This digital workshop template eliminates the trial-and-error of navette stone setting by organizi
